@@ -1,1 +1,1 @@
-# lindanoir.github.io
+https://beacons.ai/tinderxxx
